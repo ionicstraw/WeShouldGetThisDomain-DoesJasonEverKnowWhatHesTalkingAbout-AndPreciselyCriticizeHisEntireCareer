@@ -10,4 +10,6 @@ i saw that he put paul on his journal, biodata mining ... the one you go to wher
 
 we should pour our experience, and creativity and all of our frustrations with these people in a creative outlet that warns people that this is whats out there, this is what happens if you are not qualified in your field you cause so much damage bc u dunno what youre doing, and it should warn universities to not hire people like jason, ever
 
+LETS VIBE CODE A CLINICAL BIOINFORMATICS PIPELINE YAY WHAT COULD POSSIBLY GO WRONG ... omg omg omg what is going on in the world ... absolute fking GARBAGE
+
 # let's do this 2026
