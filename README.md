@@ -1,6 +1,6 @@
 # WeShouldGetThisDomain-DoesJasonEverKnowWhatHesTalkingAbout-AndPreciselyCriticizeHisEntireCareer
 
-![img](calling-it-as-i-see-it.png)
+![img](calling-it-as-i-see-it-updated.png)
 
 > we should get a domain, like "DoesJasonEverKnowWhatHesTalkingAbout.com" and put our understanding and experience out there as a response to anything and everything hes ever produced, everything from PennAI that has bugs to this fking bullshit, all of his papers, his entire career -- i think we can have a lot of fun with this throughout our career and our lives
 
