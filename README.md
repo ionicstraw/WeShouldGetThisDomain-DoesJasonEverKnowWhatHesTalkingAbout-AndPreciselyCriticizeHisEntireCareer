@@ -1,5 +1,7 @@
 # WeShouldGetThisDomain-DoesJasonEverKnowWhatHesTalkingAbout-AndPreciselyCriticizeHisEntireCareer
 
+![img](calling-it-as-i-see-it.png)
+
 > we should get a domain, like "DoesJasonEverKnowWhatHesTalkingAbout.com" and put our understanding and experience out there as a response to anything and everything hes ever produced, everything from PennAI that has bugs to this fking bullshit, all of his papers, his entire career -- i think we can have a lot of fun with this throughout our career and our lives
 
 the front page will be like jason's CV and his educational bg: bs in biology (slacker major), then phd in human genetics (with a non-famous thesis advisor no one cares about) where he was a little bitch to an autoclave as per his thesis which is online (the table of contents are), never did a post doc in AI or ML or computational biology bc he was incredibly underqualified to do that, so he became self-taught, started producing work that would impress university administrators who didnt truly understand his work as being medicore, got some jobs, couldnt keep up with the field and the research, became a serious hater of anyone who got ahead of him, so that's his life story
